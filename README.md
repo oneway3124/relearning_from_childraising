@@ -52,3 +52,9 @@ https://www.sohu.com/a/193273583_675785
 《楚辞》	《全唐诗》	《全宋词》	《乐府诗集》	《文选》 
 《李太白集》	《杜工部集》	《韩昌黎集》	《柳河东集》	《白香山集》
 
+#  国学视频
+
+https://baike.baidu.com/item/%E8%B0%B7%E5%9B%AD/4006676?fr=aladdin
+
+https://www.iqiyi.com/u/2000541283/v
+
